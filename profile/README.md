@@ -4,7 +4,7 @@
 
 
 
-## [👉👉 SP Flash Tool v5.2404](https://freesoftcr.com/dl)
+## [👉👉 SP Flash Tool v5.2404](https://freesoftcr.com/dl/)
 
 
 
